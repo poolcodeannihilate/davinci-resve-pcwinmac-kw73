@@ -1,4 +1,4 @@
-# 
+# Élite DaVinci Resolve effets pour Mac OS | Automatique DaVinci Resolve effets pour PC Windows. Avec traitement par lots et mixage audio — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
